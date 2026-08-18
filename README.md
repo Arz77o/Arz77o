@@ -41,4 +41,4 @@ My goal is to combine my marketing background with analytical skills to work on 
 - 💼 LinkedIn: [Arbouz Abderrahmane](https://www.linkedin.com/in/arbouz-abderrahmane-71093a423)
 
 ---
-⭐️ From [Abderrahmane](https://github.com/arbouz-abderrahmane)
+⭐️ From [Abderrahmane](https://github.com/Arz77o)
